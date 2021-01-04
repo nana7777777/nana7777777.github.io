@@ -1,4 +1,3 @@
-# nana7777777.github.io
 <div class="cover">
 <img src="https://drive.google.com/uc?export=view&id=1Co51IMK3dLB16ZBphXQ-_9pwciayzH4n" border="0" style="width:100%">
 <a href="https://www.naver.com/">
